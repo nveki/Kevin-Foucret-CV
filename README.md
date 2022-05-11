@@ -1,2 +1,2 @@
-# K-vin-Foucret-CV
+# Kevin-Foucret-CV
 Here is my CV 
